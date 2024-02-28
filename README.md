@@ -1,2 +1,2 @@
 # Lehre_bfi
-jo
+Do konnst irgendwos eintrogn
